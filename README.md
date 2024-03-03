@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Robbe.
-- 👀 I’m interested in gaming, designing, music, exploring game files and more.
-- 📫 Contact: RVGames_1 on every social media or rvgames1official@gmail.com
+- 👀 I’m interested in everything about coding/programming/software development.
+- 📫 Contact: contact@robbevrstr.be
